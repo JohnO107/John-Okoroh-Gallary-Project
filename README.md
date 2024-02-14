@@ -1,1 +1,0 @@
-# John-Okoroh-Gallary-Project
